@@ -1,6 +1,6 @@
 .
 
-“Công nông là gốc của cách mạng” Câu nói này của ai?: V.I Lênin.
+“Công nông là gốc của cách mạng” Câu nói này của ai?: HCM
 
 Ai đưa ra luận điểm: “Nếu không giải phóng phụ nữ là xây dựng chủ nghĩa xã hội chỉ một nửa”? Hồ Chí Minh.
 
